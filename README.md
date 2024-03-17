@@ -1,1 +1,1 @@
-Life for stronger
+Life for stronger :)
